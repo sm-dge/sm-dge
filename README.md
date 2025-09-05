@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on other stuff
 - 📫 How to reach me: arms
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: don't know any
 
 <!---
 sm-dge/sm-dge is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
