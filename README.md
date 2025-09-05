@@ -2,7 +2,7 @@
 - 👀 I’m interested in interesting things
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on other stuff
-- 📫 How to reach me: arms, usually
+- 📫 How to reach me: arms
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: owls don't have eyeballs
 
